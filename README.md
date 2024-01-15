@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on art, music, and screenplays. 
 - 📫 Reach Me with your mind, for now.
 - One day I might learn the basics of coding!
+- Anybody working on a crypto project related to weight training?
 
 <!---
 Rainbowteeth/Rainbowteeth is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
