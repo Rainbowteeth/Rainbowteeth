@@ -5,6 +5,7 @@
 - 📫 Reach Me with your mind, for now.
 - One day I might learn the basics of coding!
 - Anybody working on a crypto project related to weight training?
+- Ridley Scott loves talking about percentages. 
 
 <!---
 Rainbowteeth/Rainbowteeth is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
