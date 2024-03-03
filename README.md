@@ -1,11 +1,9 @@
 - 👋 Hi, I’m @Rainbowteeth
 - 👀 I’m interested in ZK, art, music, longevity, and making the world a better place.
 - 🌱 I’m currently learning to navigate this nascent blockchain world. 
-- 💞️ I’m looking to collaborate on art, music, and screenplays. 
-- 📫 Reach Me with your mind, for now.
-- One day I might learn the basics of coding!
+- 💞️ I’m looking to collaborate on art, music, and screenplays. Also interested in dapp development. 
+- 📫 Reach Me on X @chopmotionfilms
 - Anybody working on a crypto project related to weight training?
-- Ridley Scott loves talking about percentages.
 - "The knot of tears inside your throat is crystallizing into your design." 
 
 <!---
