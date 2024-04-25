@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rainbowteeth
-- 👀 I’m interested in ZK, art, music, longevity, and making the world a better place.
+- 👀 I’m interested in ZK, art, music, longevity, and making the world a better place.I am open to new ideas on how to do so. 
 - 🌱 I’m currently learning to navigate this nascent blockchain world. 
 - 💞️ I’m looking to collaborate on art, music, and screenplays. Also interested in dapp development. 
 - 📫 Reach Me on X @chopmotionfilms
