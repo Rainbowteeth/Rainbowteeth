@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on art, music, and screenplays. Also interested in dapp development. 
 - 📫 Reach Me on X @chopmotionfilms
 - Anybody working on a crypto project related to weight training?
-- "The knot of tears inside your throat is crystallizing into your design."
-- Can't leave well enough alone.
+- "I'm good at being uncomfortable so I can't stop changing all the time."
 
 
 <!---
