@@ -5,6 +5,7 @@
 - 📫 Reach Me on X @chopmotionfilms
 - Anybody working on a crypto project related to weight training?
 - "I'm good at being uncomfortable so I can't stop changing all the time."
+- August is as good a month as any. 
 
 
 <!---
